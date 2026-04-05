@@ -4,7 +4,7 @@
 
 Hey RahatHilter!
 
-Mona here. I'm done preparing your exercise. Hope you enjoy! 💚
+Mona here. I've edited this. Hope you enjoy! 💚
 
 Remember, it's self-paced so feel free to take a break! ☕️
 
